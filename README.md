@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @aaravb19
+- 👀 I’m interested in web development, iOS development, and game development
+- 🌱 I’m currently learning web development
+- 📫 How to reach me: aaravbahulekar09@gmail.com, 309-235-8121
+- 😄 Pronouns: he/him
+- ⚡ Interests: running, sports, hiking
